@@ -1,4 +1,4 @@
-
+Get ahead in be a lucky block with be a lucky block Script elite, featuring infinite resources and speed. Download now to dominate every match with ease and confidence, thanks to
 
 
 
